@@ -1,16 +1,19 @@
-## Hi there 👋
+## Hello !!
+You can call me Rocket, Knight, or by the name of my character !
 
-<!--
-**KN1GHTLIGHT/KN1GHTLIGHT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I go by He/Him pronouns
 
-Here are some ideas to get you started:
+Whisper to interact, I off-tab a lot !!
+I love C + H !!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+>✧
+
+I love TDU (I dont like the admins), Forsaken, Phighting, Regretevator, and probably more...
+
+>✧
+
+BYI/BYF
+- I have really bad social anxiety
+- I have ADHD so I stuggle to tell peoples tones
+
+MORE ON MY [STRAWPAGE](https://knightslight.straw.page)
