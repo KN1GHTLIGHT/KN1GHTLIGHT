@@ -9,7 +9,7 @@ Whisper to interact, I off-tab a lot !!
 >✧
 
 I love TDU (I dont like the admins), Forsaken, Phighting, Regretevator, and probably more...
-TDU fans plsspls interact (unless your the weird ones...)
+
 
 >✧
 
