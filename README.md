@@ -15,6 +15,6 @@ I love TDU (I dont like the admins), Forsaken, Phighting, Regretevator, and prob
 
 BYI/BYF
 - I have really bad social anxiety
-- I have ADHD so I stuggle to tell peoples tones
+- I have ADHD so I stuggle to tell peoples tones and I have a short attention span
 
 MORE ON MY [STRAWPAGE](https://knightslight.straw.page)
