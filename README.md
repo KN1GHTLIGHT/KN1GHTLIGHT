@@ -4,7 +4,7 @@ You can call me Rocket, Knight, or by the name of my character !
 I go by He/Him pronouns
 
 Whisper to interact, I off-tab a lot !!
-*C + H Freely !!*
+*C + H Freely I LOVE IT !!*
 
 >✧
 
