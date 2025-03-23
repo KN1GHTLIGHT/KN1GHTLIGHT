@@ -17,6 +17,6 @@ BYI/BYF
 - I have really bad social anxiety
 - I have ADHD so I stuggle to tell peoples tones and I have a short attention span
 
-MORE ON MY [STRAWPAGE](https://sirknightslight.straw.page)) ALSO SIGN MY [ATABOOK](https://knightlight.atabook.org/) 
+MORE ON MY [STRAWPAGE](https://sirknightslight.straw.page) ALSO SIGN MY [ATABOOK](https://knightlight.atabook.org/) 
 made an atabook because strawpage giimmicks are down :(
 
