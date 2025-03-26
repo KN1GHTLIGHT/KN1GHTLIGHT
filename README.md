@@ -14,6 +14,7 @@ I love TDU (I dont like the admins), Forsaken, Phighting, Regretevator, and prob
 >✧
 
 BYI/BYF
+- I tend to be very quiet at first but once I get to know you i'll talk too much 😅
 - I have really bad social anxiety
 - I have ADHD so I stuggle to tell peoples tones and I have a short attention span
 
