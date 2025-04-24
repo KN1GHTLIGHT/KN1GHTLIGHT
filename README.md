@@ -1,23 +1,18 @@
-## Hello !!
-You can call me Rocket, Knight, or by the name of my character !
 
-I go by He/Him pronouns
+<p align="center">
+Hii !!
+<p align="center">
+Call me Knight or Rocket, or the name of the character I currently am
+<p align="center">
+He/Him
+<p align="center">
+⋆˚࿔
+<p align="center">
+c+h freely / W2I is appreciated ,
+I tend to off-tab a lot 
+<p align="center">
+Read these for more info ↴ !!
+<p align="center">
 
-Whisper to interact, I off-tab a lot !!
-*C + H Freely I LOVE IT !!*
 
->✧
-
-I love TDU (I dont like the admins), Forsaken, Phighting, Regretevator, and probably more...
-
-
->✧
-
-BYI/BYF
-- I tend to be very quiet at first but once I get to know you i'll talk too much 😅
-- I have really bad social anxiety
-- I have ADHD so I stuggle to tell peoples tones and I have a short attention span
-
-MORE ON MY [STRAWPAGE](https://sirknightslight.straw.page) ALSO SIGN MY [ATABOOK](https://knightlight.atabook.org/) 
-made an atabook because strawpage giimmicks are down :(
-
+[Strawpage](https://sirknightslight.straw.page), Sign my [atabook](https://knightlight.atabook.org/) while your at it :3
