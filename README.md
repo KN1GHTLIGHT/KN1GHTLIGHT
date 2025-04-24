@@ -15,4 +15,4 @@ Read these for more info ↴ !!
 <p align="center">
 
 
-[Strawpage](https://sirknightslight.straw.page), Sign my [atabook](https://knightlight.atabook.org/) while your at it :3
+[Strawpage](https://sirknightslight.straw.page), [Rentry](https://rentry.co/Y0KHLINUAURORA), and Sign my [atabook](https://knightlight.atabook.org/) while your at it :3
