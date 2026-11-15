@@ -1,6 +1,4 @@
-<div align="center">
-<img width="842" height="358" alt="Untitled273_20251015170101" src="https://github.com/user-attachments/assets/5c98062c-5717-41f1-9869-2842e38fb5e6" />
-</div>
+
 <div align="center">
 Hi !!
 </div>
